@@ -1,0 +1,5 @@
+Start with melted and slightly cooled butter. Your butter should NOT be hot to the touch as it can cause bits of your egg to cook if it’s too warm. Mix the butter with granulated sugar and brown sugar.
+Add the yolk from a large egg and vanilla. Make sure you’re working with a large egg or you might not have enough liquid in your dough for it all to come together.
+Add flour, measured precisely, and the other dry ingredients. Flour measurement is really important in small-batch recipes. Measure by weight or using the spoon and sweep method (stir the flour in your container to fluff it up and then spoon it into your measuring cup, sweep excess off with the flat of a knife). Too much flour can lead to a dry, sandy dough.
+Add chocolate chips. This recipe calls for semi-sweet, but you can use any chips you prefer (or add M&Ms and make M&M Cookies).
+Bake. Do not overbake your cookies! Bake just until the cookies look set and then pull them from the oven. They might still seem a little gooey, but they’ll continue cooking on the hot baking sheet as it cools.
